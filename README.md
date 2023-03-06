@@ -18,6 +18,6 @@ our efforts to contribute
 to the Vin. 
 
 
-**You can visit the site via the following linkThe following link: [VINSTORE](https://ourvinstore.wixsite.com/vinstore)**
+**You can visit the site via the following link: [VINSTORE](https://ourvinstore.wixsite.com/vinstore)**
 
 
